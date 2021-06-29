@@ -2,3 +2,4 @@
 
 - Strogonoff de frango
 
+- Caldo de galinha
